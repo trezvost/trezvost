@@ -12,9 +12,9 @@
 
 Команда `trezvost/trezvost` собирает и публикует научные и исторические материалы о трезвости
 
-Если вас интересует наиболее действенный практический способ вернуть украденную у вас трезвость – [смотрите спецкурс](https://www.youtube.com/watch?v=SP2q012J-vk&pp=ygUQ0YTQsNGF0YDQtdC10LIgMQ%253D%253D) и вступайте в один из клубов по методу Шичко:
+Если вас интересует наиболее действенный практический способ вернуть украденную у вас трезвость – [смотрите спецкурс](https://www.youtube.com/watch?v=SP2q012J-vk&pp=ygUQ0YTQsNGF0YDQtdC10LIgMQ%253D%253D), а вопросы по ходу можно задать в одном из клубов по методу Шичко:
 
-> -- [ВТрезвости](https://t.me/vtrezvosti) --<br>-- [Трезвое поколение СПб](https://t.me/trezvochat) --<br>-- [Клуб благоразумия](https://t.me/blagorazumno) --<br>-- [Клуб трезвости, Москва](https://t.me/trezvonovogireevomos) --<br>-- [Адмиралтейский клуб трезвости](https://vk.com/actsober)
+> -- [ВТрезвости](https://t.me/vtrezvosti) --<br>-- [Трезвый Альметьевск](https://vk.com/trezvi_almet)--<br>-- [Трезвое поколение СПб](https://t.me/trezvochat) --<br>-- [Клуб благоразумия](https://t.me/blagorazumno) --<br>-- [Клуб трезвости, Москва](https://t.me/trezvonovogireevomos) --<br>-- [Адмиралтейский клуб трезвости](https://vk.com/actsober) --
 
 ---
 
